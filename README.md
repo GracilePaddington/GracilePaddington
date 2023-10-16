@@ -1,4 +1,3 @@
-- This account has been created just for browsing!  
- Thank you! 
+I use this account for school and personal projects, thank you! 
 
 
